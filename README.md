@@ -32,4 +32,4 @@ All three projects were built with a robust and modern tech stack, ensuring scal
 
 ---
 
-Made With Love and Coffee ☕❤️
+Fueled by Coffee, Built with Passion ☕🔥
